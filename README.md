@@ -1,1 +1,1 @@
-# windows-server-key
+NCPR7-K6YH2-BRXYM-QMPPQ-3PF6X
